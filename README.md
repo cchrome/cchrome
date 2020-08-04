@@ -1,8 +1,3 @@
-### About  me
-- 😄 | Pronouns: he/him
-
-
-
 ### Socials
 - 📺 | [youtube](https://www.youtube.com/channel/UCV5LtpksdP7IhjjfbEDnojg?view_as=subscriber)
 - 📷 | [instagram](https://instagram.com/chrwome)
