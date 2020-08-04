@@ -2,7 +2,7 @@
 
 
 
-discord - chrome#1337
+- 🔮 | [discord](https://discord.gg/pzWy6rv)
 
 
 - 🎥 | [twitch](https://twitch.tv/chrome1k)
